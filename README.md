@@ -1,6 +1,6 @@
 ![alt text](https://github.com/HermiSin/TheVoidEternal/blob/main/Bilder/Aethros1.png)
 
-# TheVoidEternal
+# The Void Eternal Wiki
 **Void Eternal** ist ein episches Weltraum-Epos im Stil von Star Wars und Dune, konzipiert als internationale Space Opera ohne Übersetzungsbarrieren. Unsere Geschichte folgt River Blackwood, einem 20-jährigen Überlebenden, dessen Heimatwelt überfallen wurde, als er 16 Jahre alt war. Er überlebte zwei Jahre als Sklave bei Piraten, bevor ihm die Flucht gelang.
 
 River ist kein strahlender Held – er ist ein gebrochener Antiheld, der als Einzelgänger durchs All wandert. Misstrauisch, rätselhaft und emotional abgestumpft, hat er einen Schutzpanzer gegen weitere Verletzungen entwickelt. Doch unter dieser harten Schale verbirgt sich ein verwundeter, aber nicht verlorener Mensch mit einer besonderen Gabe: einer trauma-induzierten Hyperwahrnehmung für Gefahren, die ihm übernatürliches Gespür für drohende Gewalt und Bedrohungen verleiht.
